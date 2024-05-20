@@ -6,7 +6,7 @@ Repositório da turma 3a2
 
 Sejam todos bem vindos 
 
-![https://tenor.com/pt-BR/view/whatsapp-gif-21302024]
+  ![](https://tenor.com/pt-BR/view/whatsapp-gif-21302024)
 
 
 
