@@ -6,7 +6,7 @@ Repositório da turma 3a2
 
 Sejam todos bem vindos
 
-![](https://tenor.com/pt-BR/view/rkivecity-gif-21879581)
+![](https://media1.tenor.com/m/hX99P3JEFeEAAAAd/rkivecity.gif)
 
 contato email ggmilk45@gamil.com
 
