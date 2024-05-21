@@ -6,7 +6,7 @@ Repositório da turma 3a2
 
 Sejam todos bem vindoS
 
-![](https://media.tenor.com/pt-BR/view/rkivecity-gif-21879581)
+![](https://media.tenor.com/rkivecity-gif-21879581)
 
   
 
